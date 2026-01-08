@@ -1,1 +1,1 @@
-# DAILYGMOWZ
+# DAILY
